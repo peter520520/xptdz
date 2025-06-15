@@ -1,6 +1,6 @@
 # xptdz
 🔥 点这里！最新地址：
-👉 xpt243.com
+👉 **https://xpt243.com**
 
 备用地址1： xpt109.com
 
